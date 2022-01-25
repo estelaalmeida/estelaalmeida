@@ -6,4 +6,4 @@
 - 🌱 I’m currently learning HTML, CSS3 e Javascript
 - 📫 How to reach me https://www.linkedin.com/in/estela-almeida-016193130/
 - e-mail : estela_almeida.oliveira@hotmail.com
-- Não sou uma nerde, mas, uma pessoa esforçada para aprender.
+- Gosto de aprender coias noovas.
